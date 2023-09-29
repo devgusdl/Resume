@@ -1,4 +1,3 @@
-# Resume of devgusdl
 ## Profile
 Name : Kim Hyun
 - Date of Birth : 1998-04-17
