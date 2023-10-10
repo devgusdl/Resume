@@ -10,7 +10,7 @@ Fudan University, 2017-09 ~ 2023-07
 - Major : Administrative management
 
 ### Extracurricular Activities
-- Korean Student's Union, Fudan University, 2017.09 ~ 2018.12	
+- Korean Student's Union Planning Department, Fudan University, 2017.09 ~ 2018.12	
 - 12th Korean Cultural Festival, Korean Consulate General in Shanghai, 2017.11	
 - 13th Korean Cultural Festival,The Korean Chamber of Commerce in Shanghai, 2018.09	
 - Ceremony commemorating the 100th anniversary of the establishment of the Provisional Government of the Republic of Korea,Korean Consulate General in Shanghai, 2019.04	
