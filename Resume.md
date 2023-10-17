@@ -24,3 +24,4 @@ Fudan University, 2017-09 ~ 2023-07
 ### Language
 - English
 - Chinese
+- Korean
